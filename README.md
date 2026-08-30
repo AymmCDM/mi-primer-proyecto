@@ -12,3 +12,10 @@ Estoy comenzando a aprender programacion y control de versiones.
 -Aprender GitHub
 -Aprender progamacion
 -Crear mis primeros proyectos
+
+
+## Este mensaje es totalmente para Nicolas Cardozo
+-Tiene cara de Homosexual
+-Puto el que lee
+-Me agrada mucho estar haciendo estas boludeces
+-Gordo tragasable
